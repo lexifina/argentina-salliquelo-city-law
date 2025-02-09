@@ -1,0 +1,3 @@
+ARTICULO 85 :
+Los servicios brindados por el Jardín Materno infantil se deberán abonar de acuerdo a
+los derechos que se establece en los artículos siguientes.-

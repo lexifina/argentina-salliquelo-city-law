@@ -1,0 +1,4 @@
+ARTICULO 74 :
+La maquinaria Municipal efectuará trabajos a particulares cuando no se encuentre
+afectadas a tareas Municipales y/o puedan ser postergadas por razones de urgencia
+o beneficio como la comunidad así lo exija.-

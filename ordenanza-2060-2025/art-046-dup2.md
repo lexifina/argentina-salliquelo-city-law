@@ -1,0 +1,7 @@
+ARTICULO 46 :
+Los valores fijados en el presente Capítulo podrán ser ajustados por el
+Departamento Ejecutivo Municipal, en función de la variación del valor referencial
+en la Tabla emitida por el Colegio de Arquitectura de la Pcia. de Bs. As.
+La aplicación del presente art. Requerirá la habilitación previa del H.C.D..-
+CAPITULO XI
+DERECHO DE OCUPACIÓN O USO DE ESPACIOS PÚBLICOS

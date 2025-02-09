@@ -1,0 +1,8 @@
+ARTICULO 26 :
+Los valores fijados en el presente Capítulo podrán ser actualizados bimestralmente por
+el Departamento Ejecutivo Municipal, en función de la variación de precios al consumidor
+nivel general, suministrado por el I.N.D.E.C. entre el 1ro. y 3ro. del mes anterior al del
+vencimiento como máximo.-
+La aplicación del presente art. Requerirá la habilitación previa del H.C.D..-
+CAPITULO VI
+DERECHO DE VENTA AMBULANTE
