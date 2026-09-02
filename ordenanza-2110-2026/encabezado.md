@@ -1,0 +1,19 @@
+Ordenanza Nº2110
+Ordenanza Nº 2110
+Salliquelo, 30/07/2026
+CONSIDERANDO:
+Que el Expediente Provincial EX-2025-27277353-GDEBA-SDCADDGCYE mediante el cual la Dirección General de Cultura y Educación de la Provincia de Buenos Aires solicita la cesión gratuita del inmueble donde funciona la Escuela Primaria N° 6 de la localidad de Salliqueló; lo dispuesto por el artículo 10 de la Ley Provincial N° 9533; la Ley Orgánica de las Municipalidades (Decreto-Ley N° 6769/58);
+Que la Dirección Provincial de Regularización Dominial de la Dirección General de Cultura Educación efectuó la verificación dominial del inmueble donde funciona la Escuela Primaria N° 6 de la localidad de Salliqueló, identificado catastralmente como Circunscripción III, Sección B, Quinta 1, Manzana 1F, Parcela 1, Partida Inmobiliaria N° 5841;
+Que de dicha verificación surge que el inmueble se encuentra designado como Reserva para Equipamiento Comunitario, conforme Matrícula N° 3784 y Plano 122-2-99, correspondiendo la titularidad dominial a la Municipalidad de Salliqueló;
+Que el citado inmueble se encuentra afectado desde hace varios años al funcionamiento permanente de un establecimiento educativo provincial, prestándose en él un servicio público esencial cuya organización y administración corresponde a la Dirección General de Cultura y Educación de la Provincia de Buenos Aires;
+Que la Dirección General de Cultura y Educación ha manifestado que la regularización de la situación dominial constituye un requisito previo e indispensable para agilizar las actuaciones administrativas vinculadas con obras de infraestructura, mantenimiento, ampliaciones, inversiones y demás intervenciones destinadas a mejorar las condiciones edilicias del establecimiento educativo;
+Que el artículo 10 de la Ley Provincial N° 9533 establece que las Municipalidades cederán gratuitamente al Estado Provincial las reservas de uso público que les sean requeridas para equipamiento comunitario, cuando ello resulte necesario para el cumplimiento de los fines públicos previstos por la norma;
+Que el destino educativo del inmueble resulta plenamente compatible con la finalidad para la cual fue prevista la reserva de equipamiento comunitario, verificándose el supuesto contemplado por la legislación provincial para autorizar su cesión gratuita;
+Que la presente cesión no implica una afectación irrazonable del patrimonio municipal, sino que consolida jurídicamente una situación de hecho preexistente, regularizando el dominio del inmueble en favor del organismo provincial que actualmente desarrolla el servicio educativo, garantizando la continuidad y fortalecimiento de una política pública esencial para la comunidad de Salliqueló;
+Que la transferencia dominial permitirá dotar de seguridad jurídica al establecimiento educativo, posibilitando la eiecución de obras, ampliaciones, inversiones y demás acciones tendientes al mejoramiento de la infraestructura escolar, en beneficio directo de los alumnos, docentes y de toda la comunidad educativa;
+Que la educación constituye un servicio público esencial cuya prestación eficiente exige la adecuada regularización dominial de los inmuebles afectados a dicho fin, correspondiendo al Municipio cooperar con el Estado Provincial en el cumplimiento de ese objetivo, conforme los principios de colaboración institucional y satisfacción del interés público;
+Que corresponde al Honorable Concejo Deliberante autorizar la cesión del inmueble, en ejercicio de las atribuciones conferidas por la Ley Orgánica de las Municipalidades;
+Que resulta importante mencionar que en el mismo inmueble funciona también la Escuela de Educación Secundaria N°2.
+POR ELLO:
+EL HONORABLE CONCEJO DELIBERANTE DEL PARTIDO DE SALLIQUELÓ, EN SESION ORDINARIA DEL DIA DE LA FECHA Y DE ACUERDO A LAS FACULTADES QUE LE SON INHERENTES SANCIONA LA SIGUIENTE
+ORDENANZA
