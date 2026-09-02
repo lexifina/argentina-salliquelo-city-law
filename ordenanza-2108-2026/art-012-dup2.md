@@ -1,0 +1,6 @@
+ARTÍCULO 12°: Cúmplase, comuníquese, registrese y archivese
+ORDENANZA N°2108/26
+MAURO SAUER
+PRESIDENTE HCD
+MARCELO PANOZZO
+SECRETARIO HCD
