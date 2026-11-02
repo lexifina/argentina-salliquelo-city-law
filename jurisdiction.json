@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-salliquelo",
+  "code": "AR-B-SALLIQUELO",
+  "name": "Salliqueló",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-salliquelo-city-law",
+  "build": "built: municipal ordinances (71 ordinances, 71 versions) from https://sibom.slyt.gba.gob.ar/cities/109",
+  "language": "es",
+  "sources": 1
+}
