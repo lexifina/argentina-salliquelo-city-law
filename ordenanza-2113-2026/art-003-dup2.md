@@ -1,0 +1,5 @@
+ARTICULO 3°: Cúmplase, comuníquese, regístrese y archívese.-
+MAURO SAUER
+PRESIDENTE HCD
+MARCELO PANOZZO
+SECRETARIO HCD
